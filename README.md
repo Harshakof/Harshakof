@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Harshakof
 - 👀 I’m interested in Gaming,creating weird things \...
 - 🌱 I’m currently learning Coding...
-- 💞️ I’m looking to collaborate on Life////
+- 🗿 I’m looking to collaborate on Game////
 - 📫 How to reach me fb:@Beliver Harsha 
 - 😄 Pronouns: none
 - ⚡ Fun fact: Im a programmer
